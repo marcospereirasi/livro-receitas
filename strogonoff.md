@@ -4,3 +4,4 @@
 - 2 peitos de frango
 - misturar
 
+- colocar mostarda
